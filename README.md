@@ -8,6 +8,8 @@ Gosto de programar e filosofia pois é muito FILÉsofia
 - Estou aprendendo **JavaScript** e **HTML**
 - Utilizo este lugar para organizar meus **projetos**
 
+**============================================================**
+
 A plateia no debate falando pro Datena:
 
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTbLqDjzik7BAxpfYVosG-dOAElWIICWeb-Ng&s)
