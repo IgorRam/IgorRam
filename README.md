@@ -10,4 +10,4 @@ Gosto de programar e filosofia pois é muito FILÉsofia
 
 Pessoa após ver meu perfil:
 
-![](https://www.sescsp.org.br/wp-content/uploads/2024/03/scorsese.jpeg)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR_sd2hg58MXi_19mQplIH62n6K0rawR_xKcw&s)
