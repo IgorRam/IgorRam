@@ -9,4 +9,5 @@ Gosto de programar e filosofia pois é muito FILÉsofia
 - Utilizo este lugar para organizar meus **projetos**
 
 **============================================================**
+
 ![](https://i.imgur.com/3v5SW8s.gif)
